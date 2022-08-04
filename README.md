@@ -1,2 +1,0 @@
-# spaceStartupHub.io
-spaceStartupHub
